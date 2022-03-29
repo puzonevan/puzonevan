@@ -1,5 +1,5 @@
 **Evan Puzon**
 
-*(ee-vohn • pooh-zaun)*
+*(ee-vohn • poo-zaun)*
 
 If you pronounce it correctly, it should rhyme!!
